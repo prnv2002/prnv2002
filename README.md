@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **[pranavnarkhede12@gmail.com](mailto:pranavnarkhede12@gmail.com)**
 
-- 📄 Know about my experiences **[My Resume](https://drive.google.com/file/d/1QW9aqpfpZ_zPRP6Ck53XvS85TRO_TfTL)**
+- 📄 Know about my experiences **[My CV](https://drive.google.com/file/d/1QW9aqpfpZ_zPRP6Ck53XvS85TRO_TfTL)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
